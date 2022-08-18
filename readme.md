@@ -1,1 +1,2 @@
-Buenas tardes a todos
+
+Hoy somos Jueves
