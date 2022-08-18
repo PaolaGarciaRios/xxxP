@@ -1,2 +1,1 @@
-
-Hoy somos Jueves
+estas son las listas
